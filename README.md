@@ -1,2 +1,2 @@
-# Crack-Leaked-Password_Database
+# Crack-Leaked-Password-Database
 GOLDMAN SACHS - Crack-Leaked-Password-Database
